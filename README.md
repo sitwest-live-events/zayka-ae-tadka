@@ -1,1 +1,0 @@
-# zayka-ae-tadka
